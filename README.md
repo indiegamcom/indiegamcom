@@ -2,7 +2,7 @@
 
 ## [Play Indie Game Online >>>](https://indiegam.com/)  
 
-![Indie Game](https://storage.indiegam.com/og-image.png)
+![Indie Game](https://storage.indiegam.com/home/og-image.png)
 
 **“Indie Game”** is the go-to platform for discovering and playing the best indie games online—completely free! We offer a diverse collection of creative, independently developed games that you can play instantly in your browser. No downloads, no installations, and no registrations required—just pure gaming fun! Whether you’re into action, puzzle, adventure, or multiplayer indie.
 
